@@ -1,16 +1,18 @@
-### Hi there 👋
+<img src="https://i.pinimg.com/originals/eb/f9/7f/ebf97f93f96e56f67674bc951c713db9.gif" width="420" >
 
-<!--
-**diavoIo/diavoIo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+*This is for PonyTown*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+***Do NOT Interact***
+
+`Ponies, Kins, & Lovers of Diavolo [JJBA]` 
+
+ `Anyone under 16`
+
+If you thrive off making others miserable.
+
+If you claim to have TT/TD/DNT or any other variant
+
+Mental illness/disorder `fakers` (Psychosis, DID, etc.)
+
+I gatekeep Trish Una [JJBA]
